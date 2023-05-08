@@ -1,2 +1,2 @@
 # layananmasyarakat
-https://rifqiiabdan.github.io/layananmasyarakat/
+https://rifqiiabdan.github.io/layananmasyarakat/depan.html
